@@ -7,4 +7,6 @@
 - [x] Lendário
 - [x] Pog
 
-Saca só isso ----> (https://www.jogos360.com.br/own_goal_world_cup.html)
+Saca só isso ----> [Meu Contato Pessoal](https://www.jogos360.com.br/own_goal_world_cup.html)
+
+
