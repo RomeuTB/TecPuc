@@ -1,2 +1,4 @@
 # TecPuc
-O melhor repositório do Brasil
+##*Meu Rep do colégio*
+
+**O repositório mais SIMP do Brasil**
